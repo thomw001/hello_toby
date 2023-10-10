@@ -1,2 +1,2 @@
 # hello_toby
-This is my first every repository
+This is my first every repository, I feel scared about coding because I had PTSD from CSE 8A. But! I like this way more than the other corporate finance classes I am taking. I hate accounting so much haha. I actually like coding, it makes me feel like I'm smart and doing something cool with technology. But sometimes I feel like I'm surrounded by so many advanced coders and that gives me a lot of pressure. But I would improve the most through challenges.  
